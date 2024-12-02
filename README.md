@@ -1,4 +1,4 @@
-- ### bem vindo ao neu perfil!💞️
+- ### bem vindo ao meu perfil!💞️
 - eu me chamo yasmim!
 
 - estou visitando a alura
